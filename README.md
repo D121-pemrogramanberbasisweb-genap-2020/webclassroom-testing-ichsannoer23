@@ -1,3 +1,3 @@
-Nama : 
+Nama : A. M. ichsan Noer Abustan
 
-NIM  :
+NIM  : D121181509
